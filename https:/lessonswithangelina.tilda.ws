@@ -1,1 +1,0 @@
-On this site, I will share all the details about our private lessons, including the dates, times, and subjects studied. Please note that the lessons conducted through Lakawon from the 26th to the 29th are not included. Kindly review and let me know if there are any discrepancies.
